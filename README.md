@@ -3,7 +3,7 @@
 
 「 Ciel 」꒱ Lain ; Glimmer　ᛝ 18yrs ┆ ceramic ball-jointed puppet　◡　HeThey .
 
-Read [E2R](https:/rentry.co/glimcord) for basic info　◡　AuBPD , transmac agender　◡ [boundaries](https://rentry.co/hollowlace) 
+Read [E2R](https://rentry.co/glimcord) for basic info　◡　AuBPD , transmac agender　◡ [boundaries](https://rentry.co/hollowlace) 
 
 ![](https://i.postimg.cc/qqvHGJ4Y/Untitled3025-20250929012409.png)
 
