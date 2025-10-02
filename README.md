@@ -1,7 +1,7 @@
 ![](https://i.postimg.cc/BncNJxx4/Untitled3332-20250929005158.png)
 ![](https://i.postimg.cc/qqvHGJ4Y/Untitled3025-20250929012409.png)
 
-「 Ciel 」꒱ Lain ; Glimmer　ᛝ 18yrs ┆ ceramic ball-jointed puppet　◡　HeThey .
+「 Ciel 」꒱ Jinza ; Glimmer　ᛝ 18yrs ┆ ceramic ball-jointed puppet　◡　HeThey .
 
 Read [E2R](https://rentry.co/glimcord) for basic info　◡　AuBPD , transmac agender　◡ [boundaries](https://rentry.co/sumerudoll) 
 
