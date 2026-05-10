@@ -1,6 +1,6 @@
 ![](https://files.catbox.moe/ftkesf.PNG)
 
-main hyperfixations : Dandys world, One Piece, genshin
+main hyperfixations : Dandys world, One Piece, genshin, tomodachi life
 || though i have a lot of interests.
 
 i love music, the weeknd is my top artist.
