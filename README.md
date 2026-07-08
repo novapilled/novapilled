@@ -7,4 +7,4 @@ D1 XO fan　  ; falling in reverse, PTV, millionaires, ayesha , etc
 
 I make art, i have a [twt](https://x.com/glimrou) & [tiktok](https://www.tiktok.com/@glimling).  im pretty chill, i like to talk 👍 
 
-![](https://files.catbox.moe/kc2u99.png)
+![](https://files.catbox.moe/8em0xq.webp)
