@@ -1,13 +1,12 @@
-<div align="center">
-  
-$\large\color{#50190a}{\textsf{𓏏𓏏　}}$  $\large\color{#432117}{\textsf{I'm}}$ $\large\color{#5e312a}{\textsf{an}}$ $\large\color{#5a3732}{\textsf{instrument}}$ $\large\color{#70453f}{\textsf{of}}$ $\large\color{#977066}{\textsf{war}}$ $\large\color{#50190a}{\textsf{　𓏏𓏏　}}$ 
+<img src="https://github.com/dummyinbed/dummyinbed/blob/c5170fe43bee8d70ff95a4b31a9f9ca5be4a99f0/weemmmbu.png" align="left" width="430px">ㅤㅤㅤㅤㅤㅤㅤㅤ
 
-![](https://i.postimg.cc/YvPby4RM/Untitled4104-20260714042342.png) ![](https://i.postimg.cc/JDkwd5mK/Untitled4104-20260714035845.png) ![](https://i.postimg.cc/R6KfdhsP/Untitled4104-20260714042345.png)
+ㅤㅤㅤㅤ<br>${\text{\color{#d16ba5} You　\color{#c777b9} took　\color{#ba83ca} a　\color{#aa8fd8} star　\color{#9a9ae1} to　\color{#8aa7ec} bed◞　\color{#79b3f4} Woke　\color{#69bff8} up　\color{#52cffe} with　\color{#41dfff}  me 　\color{#46eefa} instead}}$ <br>
 
-$\color{#977066}{\textsf{he﹔they　　}}$ 　　 $\large\color{#70453f}{\textsf{ 　　　　Ი𐑼 ‎　　 𓈒　}}$ $\color{#977066}{\textsf{ISFP-T}}$
+<img src="https://github.com/dummyinbed/dummyinbed/blob/90236e5c6c718521f2f086eec1f3661cae72945c/IMG_5197__fliter--cherry-icecream__channel--all__mode--overlay.png" align="middle" width="200"> ㅤㅤㅤㅤㅤㅤ<br>
+${\text{\color{#ba83ca} You　\color{#aa8fd8} Must　\color{#9a9ae1} Have　\color{#8aa7ec} felt　\color{#79b3f4} so　\color{#69bff8} damn　\color{#52cffe} deceived}}$ <br>
 
-$\color{#977066}{\textsf{AuBPD ⠀ ﾉ⠀ hispanic}}$ 　　 $\large\color{#70453f}{\textsf{ ⠀𓏵⠀ }}$ 　　 $\color{#977066}{\textsf{scenemo puppet}}$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-  　　
-$\large\color{#50190a}{\textsf{𓏏𓏏　}}$ ㅤ[rentry](https://rentry.co/glimcord)ㅤ $\large\color{#70453f}{\textsf{    . . .⠀⠀}}$   [art](https://x.com/glimrou) ㅤㅤ $\large\color{#50190a}{\textsf{　𓏏𓏏　}}$ 
+ㅤ<br>${\text{\color{#d16ba5} he　\color{#c777b9} ﹔　\color{#ba83ca} they　\color{#aa8fd8} Ი𐑼　\color{#9a9ae1}  ‎　　 　\color{#8aa7ec} 𓈒　\color{#79b3f4} ISFP-T　\color{#69bff8} ◞　\color{#52cffe} }}$ <br> ${\text{\color{#ba83ca} AuBPD　\color{#aa8fd8}  ⠀ 　\color{#9a9ae1} ﾉ　\color{#8aa7ec} ⠀　\color{#79b3f4} hispanic　\color{#69bff8}  　\color{#52cffe}  　}}$ <br>  　⠀𓏵  ⠀ ${\text{\color{#ba83ca} AuBPD　\color{#aa8fd8} \color{#9a9ae1} ﾉ　\color{#8aa7ec} ⠀ 　\color{#79b3f4} scenemo　\color{#69bff8} puppet\color{#52cffe}  　}}$ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Straw](https://glimrou.straw.page/)  　⠀𓏵  ⠀ [Art](https://x.com/glimrou)
 
+<img width="2200" height="1300" alt="image" src="https://github.com/user-attachments/assets/fa919f7e-127b-484d-bbf8-b4832dcaf592" align="middle" />
