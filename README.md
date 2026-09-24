@@ -7,6 +7,6 @@ ${\text{\color{#ba83ca} You　\color{#aa8fd8} Must　\color{#9a9ae1} Have　\col
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-ㅤ<br>${\text{\color{#d16ba5} he　\color{#c777b9} ﹔　\color{#ba83ca} they　\color{#aa8fd8} Ი𐑼　\color{#9a9ae1}  ‎　　 　\color{#8aa7ec} 𓈒　\color{#79b3f4} ISFP-T　\color{#69bff8} ◞　\color{#52cffe} }}$ <br> ${\text{\color{#ba83ca} AuBPD　\color{#aa8fd8}  ⠀ 　\color{#9a9ae1} ﾉ　\color{#8aa7ec} ⠀　\color{#79b3f4} hispanic　\color{#69bff8}  　\color{#52cffe}  　}}$ <br>  　⠀𓏵  ⠀ ${\text{\color{#ba83ca} AuBPD　\color{#aa8fd8} \color{#9a9ae1} ﾉ　\color{#8aa7ec} ⠀ 　\color{#79b3f4} scenemo　\color{#69bff8} puppet\color{#52cffe}  　}}$ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Straw](https://glimrou.straw.page/)  　⠀𓏵  ⠀ [Art](https://x.com/glimrou)
+ㅤ<br>${\text{\color{#d16ba5} he　\color{#c777b9} ﹔　\color{#ba83ca} they　\color{#aa8fd8} Ი𐑼　\color{#9a9ae1}  ‎　　 　\color{#8aa7ec} 𓈒　\color{#79b3f4} ISFP-T　\color{#69bff8} ◞　\color{#52cffe} }}$ <br> ${\text{\color{#ba83ca} AuBPD　\color{#aa8fd8}  ⠀ 　\color{#9a9ae1} ﾉ　\color{#8aa7ec} ⠀　\color{#79b3f4} hispanic　\color{#69bff8}  　\color{#52cffe}  　}}$ <br>  　⠀𓏵  ⠀ ${\text{\color{#ba83ca} Egg　\color{#aa8fd8} \color{#9a9ae1} ﾉ　\color{#8aa7ec} ⠀ 　\color{#79b3f4} scenemo　\color{#69bff8} puppet\color{#52cffe}  　}}$ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Straw](https://glimrou.straw.page/)  　⠀𓏵  ⠀ [Art](https://x.com/glimrou)
 
 <img width="2200" height="1300" alt="image" src="https://github.com/user-attachments/assets/fa919f7e-127b-484d-bbf8-b4832dcaf592" align="middle" />
